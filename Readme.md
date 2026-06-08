@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently a student (27 grad)<br>🌱 I’m currently learning electronics and communication engg<br>
+🔭 engineering student (27 grad)<br>🌱 Learning electronics and communication engg<br>
 
 
 ## 🌐 Socials:
